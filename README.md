@@ -3,4 +3,4 @@
 ✨​ Tenho 15 anos
 ✈️ Gosto de viajar
 ​⚕️​ Meu sonho fazer medicina
-##https://tenor.com/nLPSGcxwhmf.gif
+https://tenor.com/nLPSGcxwhmf.gif
